@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kindernnyoks@gmail.com**
 
-- ⚡ Fun fact **I Think I can**
+- ⚡ Fun fact **I Think I can and i will**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
