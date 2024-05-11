@@ -5,7 +5,7 @@
 
 - 📝 I regularly write articles on [...coming soon](...coming soon)
 
-- 📫 How to reach me **kindernnyoks@gmail.com**
+- 📫 How to reach me **kindersonnnyoks@gmail.com**
 
 - ⚡ Fun fact **I Think I can and i will**
 
